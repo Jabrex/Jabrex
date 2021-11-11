@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Jabrex
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning at University in Izmir , Yasar University.
